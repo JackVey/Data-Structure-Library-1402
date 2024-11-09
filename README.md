@@ -8,4 +8,4 @@
 
 [نوید عبادی](https://github.com/Navid-Ebadi-2003)
 
-[سیدعلی](https://github.com/seyed0123)
+[سیدعلی حسینی نصب](https://github.com/seyed0123)
