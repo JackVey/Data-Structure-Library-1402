@@ -9,3 +9,5 @@
 [نوید عبادی](https://github.com/Navid-Ebadi-2003)
 
 [سیدعلی حسینی نصب](https://github.com/seyed0123)
+
+[و البته خودم!](https://github.com/JackVey)
